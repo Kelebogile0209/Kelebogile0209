@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kelebogile0209
 - 👀 I’m interested in code
 - 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on anything computer science related
 - 📫 How to reach me Kele.mukwada@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i dance.
